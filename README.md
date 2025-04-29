@@ -1,5 +1,4 @@
 #my favorite movies/series
-
 1. Hello, Love, Again (2024)
 This movie is a beautiful love story that touched many hearts. It became the most successful Filipino film ever,
  The story is emotional and romantic, with strong acting and a message about second chances in love. People loved it because they could relate to the characters and their feelings.
